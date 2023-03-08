@@ -1,1 +1,1 @@
-Hi, I’m Berneau 👋
+Hi, I’m Berni 👋
